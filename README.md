@@ -58,4 +58,4 @@ CloudFisher 渔云机场提供多种订阅计划，满足不同用户的需求�
 
 CloudFisher 渔云机场不仅提供了稳定、高速的网络加速服务，还为用户带来了丰富的流媒体体验和推广收益机会。选择适合您的订阅计划，立即享受更加顺畅的网络体验吧！
 
-> CloudFisher 渔云 - IEPL 专线 服务，低至每120GiB仅7元：访问[官网](https://jump.p6p.net/165)订阅。
+> CloudFisher 渔云 - IEPL 专线 服务，低至每120GiB仅7元：访问[官网](https://tiao.bid/165)订阅。
